@@ -1,0 +1,1 @@
+# Metody_Inzynieri_Wiedzy_2022
